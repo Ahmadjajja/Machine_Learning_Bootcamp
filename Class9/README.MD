@@ -1,4 +1,4 @@
-## _July 22, 2024 | Week 3 | Day 1_
+_July 22, 2024 | Week 3 | Day 1_
 
 **Contents covered include:**
 
